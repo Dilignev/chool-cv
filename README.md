@@ -1,1 +1,1 @@
-# rsschool-cv
+https://dilignev.github.io/rsschool-cv/cv
